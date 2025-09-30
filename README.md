@@ -1,0 +1,1 @@
+# 29-09-2025-U1-Ejercicio-Insomnia---Validaciones-INDIVIDUAL
